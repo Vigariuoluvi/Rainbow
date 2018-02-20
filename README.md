@@ -1,4 +1,4 @@
 # Rainbow
 I believe nothing happened but that's not all;
 
-The song is a happy song.
+The song is a happy song. I'm finally learning!
